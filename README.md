@@ -1,1 +1,0 @@
-# daniel-hemmen.github.io
